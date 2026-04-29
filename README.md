@@ -1,5 +1,5 @@
 Social Media Manager at Maseno University Association Of Business Students Association
-Digital strategy |Content system |Brand Communication
+| Digital strategy |Content system |Brand Communication
 
 I am a Social Media Manager focused on building structured digital communication and brand visibility for academic, SME, and professional organizations.
 
